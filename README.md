@@ -1,5 +1,8 @@
 # hello-world
 The place of thought
 
-Abhinav here, I'm a boy who wants as much knowledge as he can find.
-I like coding and I want to learn about loads of computer tech.
+Mama, just killed a man
+Put a gun against his head
+Pulled my trigger, now he's dead
+Mama, life had just begun
+But now I've gone and thrown it all away
